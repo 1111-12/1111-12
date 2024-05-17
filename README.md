@@ -11,7 +11,7 @@ e tentar terminar de cursar essa desgraça de alura
 
 @edineimacedoviana@gmail.com
 
-![](https://media1.tenor.com/m/S-Snw1m67Y8AAAAd/byuntear-meme.gif)
+![](https://media1.tenor.com/m/fe0_VC-kyjYAAAAC/jiafei-jiafei-queen.gif)
 
 
 
